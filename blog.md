@@ -1,10 +1,6 @@
-<!DOCTYPE html>
-<html>
-<body>
-
-<h1>Rio de Janeiro 2026</h1>
+# Rio de Janeiro 2026
   
-<p>After many delays involving >8 hours in the airport on both their parts, Lena and Emily finally made it to Rio. Lena's plane ran out of fuel before reaching Miami so she got stranded in Fort Myers overnight. Luckily, she got a hotel voucher and $12 off a meal at any single restaurant in the airport. All the food in the airport was closed for the night so she got 2 bottles of water that were somehow $11. Emily was waylaid by under-staffing in Houston and had to delay her entire itinerary by 24 hours. Luckily, they both ended up touching down around the same time and were able to find each other.
+After many delays involving >8 hours in the airport on both their parts, Lena and Emily finally made it to Rio. Lena's plane ran out of fuel before reaching Miami so she got stranded in Fort Myers overnight. Luckily, she got a hotel voucher and $12 off a meal at any single restaurant in the airport. All the food in the airport was closed for the night so she got 2 bottles of water that were somehow $11. Emily was waylaid by under-staffing in Houston and had to delay her entire itinerary by 24 hours. Luckily, they both ended up touching down around the same time and were able to find each other.
 
 Our Airbnb host was a stern but kind lady who was not thrilled about the change of plans. We went rogue for an hour at a beach-side cafe waiting for her to let us in to our apartment. We didn't know enough Portuguese to realize they didn't serve food at this time. We also ran into some very nice security guards who really really wanted to help us get to our apartment. Alas, we did not know enough Portuguese to explain our situation. Almost no one has been speaking English to us. Either people here don't speak English or don't realize we speak English given our attempts in Portuguese (Lena) or Spanish (Emily). Every time Emily has attempted Spanish she has been understood perfectly but the same cannot be said for her understanding of the responses in Portuguese. 
 
@@ -30,7 +26,4 @@ After getting (nearly no) work done at a cafe, the dynamic duo was reunited to w
 
 Then, we needed a break from our lackluster meals so Emily requested somewhere Lena had already been and they ended up at an AMAZING Japanese restaurant. They had one cocktail each which is why this blog post is so silly. They were STRONG though!!!!! The fresh fish was amazing and we love Japanese food. #No Ragrets
 
-We got some ice cream on the way back but we have no idea what flavors we got. This is definitely the most challenged Emily has ever felt with language. Everywhere else she's been has either been Spanish-speaking or a language she hasn't even attempted to speak. Portuguese hits that sweet spot for struggle...</p>
-
-</body>
-</html>
+We got some ice cream on the way back but we have no idea what flavors we got. This is definitely the most challenged Emily has ever felt with language. Everywhere else she's been has either been Spanish-speaking or a language she hasn't even attempted to speak. Portuguese hits that sweet spot for struggle...
