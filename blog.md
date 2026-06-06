@@ -6,6 +6,8 @@ Our Airbnb host was a stern but kind lady who was not thrilled about the change 
 
 Our Airbnb is an airy apartment full of original artwork by the owner who on top of being stern is a bougie art lady. We got some tapioca snacks right across the street which Lena described as having the texture of a chicken cutlet. It's been a really long time since Lena has had chicken cutlets and let's just say... no not at all. We found them to be alright and we also tried queijo de minas which seems to be the Brazilian version of queso fresco. 
 
+![][images/Rio/airbnb.HEIC]
+
 We were very productive despite being dead tired. We managed to hit the grocery store where we went WILD with the produce (and PB&J materials). It's unclear whether it's a good idea to eat fresh fruits and vegetables that we can't peel but it's not stopping Emily who went wild with the grapes. She hasn't suffered too much yet except for some unique farts last night :) 
 
 We also hit the beach where Emily attempted to bust open a passion fruit while watching the sun set with VERY impressive surfers in the foreground. We were also on a pretty rock. It was a big rock, too. 
